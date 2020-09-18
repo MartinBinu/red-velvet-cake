@@ -1,0 +1,3 @@
+Red velvet is made with cocoa powder, vinegar and buttermilk. The chemical reaction between these ingredients help give the cake a deep maroon color that is often enhanced by extra food coloring.Red velvet cake has less cocoa powder added to it so the chocolate flavor is much more mild. 
+
+Both our chocolate cake and red velvet cake use buttermilk, but buttermilk is a required ingredient for red velvet cake. It also has vinegar and red food coloring added to it to add acidity and the classic red coloring.
